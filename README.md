@@ -1,0 +1,7 @@
+- 👋 Hi, I’m @ondrejplaysgd
+- 👀 I’m interested in computers
+- 🌱 I’m currently learning about English
+- 💞️ I’m looking to collaborate on something
+- 📫 How to reach me (i'll not say that)
+- 😄 Pronouns: idk
+- ⚡ Fun fact: my websites on GitHub are only for testing GitHub
